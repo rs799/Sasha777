@@ -1,2 +1,1 @@
-hi everybody, this is ptoject aldement with sasha, wer make wepsite were is sasha name.
-pls donations :)
+HELLO EVERYBODY, BOY AND GIRLS, THESE IS FRAG_ALDEMENT. PLS SEND DONATION 4 MY PRO FROTNITE CERIER
